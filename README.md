@@ -9,3 +9,5 @@ I found that I forgot to bring my key with me. I was locked out of my door.
 I called my landlord and wait for him to open the door for me.
 
 While waiting for the landlord, I go for a walk.
+
+After I fot back to my room, I grabed my bag and went to a speech of a seniors.
